@@ -1,0 +1,1 @@
+A bomb dropped by the Allies on Berlin during World War II killed every animal in the Berlin Zoo except the elephant, which escaped and roamed the city. When a Russian commander saw hungry Germans chasing the elephant and trying to kill it, he ordered his troops to protect it and shoot anyone who tried to kill it
